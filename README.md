@@ -1,1 +1,1 @@
-# Sprint_7_ReneOropeza.git
+# Sprint_7_ReneOropeza
